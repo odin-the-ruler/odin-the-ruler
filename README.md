@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **somnathtiwari887@gmail.com**
 
-- ⚡ Fun fact **I Think I I'm A COMPUTER**
+- ⚡ Fun fact **I Think I'm A COMPUTER**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
